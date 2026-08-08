@@ -1,2 +1,0 @@
-# 67skid
-nothing
